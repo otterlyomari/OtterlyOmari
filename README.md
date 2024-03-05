@@ -1,4 +1,5 @@
-![](https://github.com/otterlyomari/otterlyomari/blob/main/omari.png)"
+![](https://github.com/otterlyomari/otterlyomari/blob/main/omari.png)
+![](https://github.com/otterlyomari/otterlyomari/blob/main/omari_chibi.png)
 
 <!--
 **otterlyomari/otterlyomari** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
