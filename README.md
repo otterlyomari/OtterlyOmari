@@ -1,7 +1,7 @@
 ![](https://github.com/otterlyomari/otterlyomari/blob/main/omari.png)
 ![](https://github.com/otterlyomari/otterlyomari/blob/main/omari_chibi.png)
 
-Pls gib follow
+# Pls gib follow
 
 
 
