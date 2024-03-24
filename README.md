@@ -2,6 +2,11 @@
 ![](https://github.com/otterlyomari/otterlyomari/blob/main/omari_chibi.png)
 
 Pls gib follow
+
+
+
+
+
 [Follow me on Twitch](https://www.twitch.tv/otterlyomarittv)
 [Follow me on Twitter/X](https://www.twitter.com/otterlyomari)
 [Support me on Ko-fi](https://www.ko-fi.com/otterlyomari)
