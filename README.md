@@ -25,7 +25,13 @@ Pls gib follow
 
 
 [Support me on Throne](https://throne.com/otterlyomari)
+
+
+
 [Subscribe to my YouTube channel](https://youtube.com/@OtterlyOmari?sub_confirmation=1)
+
+
+
 [Follow my bandcamp page](https://symphonyoftidemere.bandcamp.com/)
 <!--
 **otterlyomari/otterlyomari** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
