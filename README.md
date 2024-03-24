@@ -1,6 +1,13 @@
 ![](https://github.com/otterlyomari/otterlyomari/blob/main/omari.png)
 ![](https://github.com/otterlyomari/otterlyomari/blob/main/omari_chibi.png)
 
+Pls gib follow
+[Follow me on Twitch](https://www.twitch.tv/otterlyomarittv)
+[Follow me on Twitter/X](https://www.twitter.com/otterlyomari)
+[Support me on Ko-fi](https://www.ko-fi.com/otterlyomari)
+[Support me on Throne](https://throne.com/otterlyomari)
+[Subscribe to my YouTube channel](https://youtube.com/@OtterlyOmari?sub_confirmation=1)
+[Follow my bandcamp page](https://symphonyoftidemere.bandcamp.com/)
 <!--
 **otterlyomari/otterlyomari** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
