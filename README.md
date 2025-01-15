@@ -12,7 +12,7 @@
 
 
 
-[Follow me on BlueSky]([https://www.twitter.com/otterlyomari](https://bsky.app/profile/otterlyomari.bsky.social))
+[Follow me on BlueSky](https://bsky.app/profile/otterlyomari.bsky.social)
 
 
 
