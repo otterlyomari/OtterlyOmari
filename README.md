@@ -1,5 +1,4 @@
 ![](https://github.com/otterlyomari/otterlyomari/blob/main/omari.png)
-![](https://github.com/otterlyomari/otterlyomari/blob/main/omari_chibi.png)
 
 # Pls gib follow
 
@@ -13,7 +12,7 @@
 
 
 
-[Follow me on Twitter/X](https://www.twitter.com/otterlyomari)
+[Follow me on BlueSky]([https://www.twitter.com/otterlyomari](https://bsky.app/profile/otterlyomari.bsky.social))
 
 
 
